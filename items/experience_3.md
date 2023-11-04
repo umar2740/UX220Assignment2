@@ -1,1 +1,3 @@
 ### Moving back to Brantford
+
+Moving back to Brantford for this school year has been quite the experience thus far. I had gotten extremely comfortable with my daily routine over the summer when I was back home in Richmond Hill, and so even now in November I feel as though I'm still adjusting to this new routine. Seeing my friends and roommates whom I've missed over the summer has been comforting and is helping me readjust to living here.

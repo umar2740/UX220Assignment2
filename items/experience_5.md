@@ -1,1 +1,3 @@
 ### Travelling to Saudi Arabia
+
+In December of 2019, my grandparents took me alongside my siblings and cousins to Saudi Arabia for Umrah --- a significant pilgrimage in Islam. During this trip, we travelled across many sightworthy places. My favourite destinations included the cities of Medina, Mecca, and Jeddah. However, my greatest and most cherished memory from this trip was sitting alone by the Red Sea in Jeddah. For hours, I felt hypnotized as I silently watched the waters and listened to the peaceful ambience of the waves. I also purchased a silver chain from Medina, which is something I value deeply.  

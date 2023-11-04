@@ -1,1 +1,3 @@
 ### Getting my G2 license
+
+After procrastinating for way too many years, I finally got my G2 license this past summer! Although it sometimes felt very tiring to spend my summer doing in-car lessons and online driving school courses, I'm very glad I got this done. Being able to drive has made life for myself and my family much more easy and efficient. Next summer, I plan to continue my in-car lessons in preparation for my G license test.

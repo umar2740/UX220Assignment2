@@ -1,1 +1,3 @@
 ### Getting a gym membership
+
+This past summer, I had the desire to work towards achieving a healthier lifestyle. I got a membership at a local gym called Movati with my dad. Since then, him and I have been consistently working out. At the moment, I have been working out at the YMCA since the Movati in Brantford is too far for me to walk. I really enjoy being in the gym because it relieves me of the stress, anxiety, and worries in my life.
